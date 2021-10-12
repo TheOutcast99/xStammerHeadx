@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Rishi Tej!
+- 👋 Hi, I’m Rishi!
 - 👀 I’m interested in well, many stuff
 - 🌱 I’m currently learning 9th grade stuff
 - 💞️ I’m looking to collaborate on nothing :>
